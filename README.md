@@ -3,7 +3,7 @@
 
 - 👯 I’m looking to collaborate on **anything, i'm always ready to learn and help.**
 
-- 📫 How to reach me **daighamsalma5@gmail.com**
+- 📫 How to reach me **daighamsalmawork@gmail.com**
 
 - ⚡ Fun fact **I love ducks 🦆, and when I was a child, my dream job was to be an astronaut 👩‍🚀✨!**
 
